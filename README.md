@@ -10,5 +10,5 @@
 //B asjnckajnsclka
 
 
-//C ldvnkn;anv;kanksvn
+//C ldvnkn;anv;kanksvn   code soz kadm 
 
